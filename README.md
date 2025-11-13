@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI CS and WD
 - 🌱 I’m currently learning python and C soon
 - 💞️ I’m looking to collaborate on creating a start-up
-- 📫 How to reach me erwannisslycee2@gmail.com
+- 📫 How to reach me erwannissanga2005@gmail.com
 - ⚡ Fun fact: I play basketball 
 
 <!---
